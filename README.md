@@ -15,4 +15,4 @@ emmilypietra023@gmail.com
 
 
 tenho 18 anos,e estou estudando para o vestibular do ITA 🤓
-nao sei muito bem se vou passar,por conta da provaser muito dificil
+nao sei muito bem se vou passar,por conta da prova ser muito dificil
